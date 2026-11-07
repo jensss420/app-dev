@@ -4,7 +4,7 @@
 
  **About The Movie** 
  
-<mark>*The movie begins when Miles is bitten by a radioactive spider and develops extraordinary abilities. While trying to understand his new powers, he discovers a machine that opens portals to different dimensions. As a result, several versions of Spider-Man from alternate universes arrive in his world.*<mark>
+*The movie begins when Miles is bitten by a radioactive spider and develops extraordinary abilities. While trying to understand his new powers, he discovers a machine that opens portals to different dimensions. As a result, several versions of Spider-Man from alternate universes arrive in his world.*
 
 ## Why I Like It
 
